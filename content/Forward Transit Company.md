@@ -1,0 +1,1 @@
+Founded by the honourable [[Hunter Groenfell]], engaged in shipping on the [[Keth]] frontier and [[Eastern Ocean]] seaboard.

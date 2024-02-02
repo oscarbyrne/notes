@@ -1,0 +1,1 @@
+A red dragon responsible for the [[Free City of Boston]]'s rising power, the invasion of [[Grimsland]] and the adoption of [[steam power]].

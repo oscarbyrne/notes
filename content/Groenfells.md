@@ -1,0 +1,1 @@
+A human clan of explorers and traders. Rules [[Free City of Boston]] alongside the [[Bannotynes]].

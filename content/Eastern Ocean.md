@@ -1,0 +1,1 @@
+Shipping is limited to trading along the coast of the [[Central Empire]], and occasional skirmishes with [[Hololonoi]] schooners.
